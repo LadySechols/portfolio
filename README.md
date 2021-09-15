@@ -18,7 +18,7 @@ Things Sally !=Like
 5. random socks around the house
 
 Movie Sets Sally has worked on:
-- Granite Flats
+- Granite Flats [Picture with Carey Elwes](https://scontent-atl3-1.xx.fbcdn.net/v/t31.18172-8/1799940_10200879830956844_547835395_o.jpg?_nc_cat=110&ccb=1-5&_nc_sid=ba80b0&_nc_ohc=sVPy1-9tIZcAX_mQ-Lv&_nc_ht=scontent-atl3-1.xx&oh=7b726908c36a3868f03f72b9a87a706e&oe=61679CE2)
 - Yellowstone
 - Blood and oil
 - The Shadow Cabal
