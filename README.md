@@ -30,7 +30,7 @@ Sally feels *strongly* about things.
 Sally sells [Scentsy](salena.scentsy.us) by the seashore.
 
 Halloween favorite:
-[This is a halloween scentsy warmer](https://salena.scentsy.us/shop/p/69879/haunting-good-time-warmer)
+![This is a halloween scentsy warmer](https://imagelive.scentsy.com/cmsimages/products/homewarmerhauntinggoodtimeisoglowr1fw21.png)
 
 
 
